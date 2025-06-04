@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dhrushipadma
-- 👀 I’m interested in AI consulting and Mental health
-- 🌱 I’m currently pursuing my master's in Artificial Intelligence in Business, and have a bachelor's degree in Psychology
+- 👀 I’m interested in AI and Mental health
+- 🌱 I’m hold a master's in Artificial Intelligence in Business, and have a bachelor's degree in Psychology
 - 📫 You can reach me on my email : pdhrushi@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I am a professional dancer, with experience in 8+ dance styles!
